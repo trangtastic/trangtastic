@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @trangtastic
-- 👀 I’m interested in theatre acting and computers
-- 🌱 I’m currently learning at an acting school
+- 👀 I’m interested in theatre acting and sometimes computers
 - 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me: INSTAGRAM: trangtastic
 
